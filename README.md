@@ -1,1 +1,0 @@
-# Daniel-Schroedl.github.io
